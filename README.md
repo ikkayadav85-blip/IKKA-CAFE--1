@@ -1,2 +1,0 @@
-# IKKA-CAFE-
-Ikka cafe 
